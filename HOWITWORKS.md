@@ -1,3 +1,0 @@
-#How Does This Work?
-
-I will explain it once im finished lOL
